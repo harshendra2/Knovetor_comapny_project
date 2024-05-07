@@ -1,0 +1,1 @@
+# Knovetor_comapny_project
